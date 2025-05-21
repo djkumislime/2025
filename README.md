@@ -6,5 +6,4 @@
 - Donald Trump won the U.S. presidential election. (*1)
 
 References:<br/>
-*1 [2024 U.S._presidential election](https://en.wikipedia.org/wiki/2024_United_States_presidential_election)
-<img src="[Screenshot 2025-05-21 081953.png](https://github.com/djkumislime/djkumislime/blob/main/Screenshot%202025-05-21%20081953.png?raw=true)" alt="image">
+*1 [2024 U.S._presidential election](https://en.wikipedia.org/wiki/2024_United_States_presidential_election): [Results](https://raw.githubusercontent.com/djkumislime/djkumislime/refs/heads/main/Screenshot%202025-05-21%20081953.png)
