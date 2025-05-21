@@ -1,4 +1,5 @@
 ### Pivotal events and information from 2025:
+- May: [The Chromebook Challenge encourages students with school-assigned Google Chromebooks to shove small items, like paperclips or graphite pencils, into the laptop's USB ports, which can result in smoke, fire or even an explosion.](https://news.yahoo.com/chromebook-challenge-trend-students-destroying-180608970.html)
 - Sat, May 17: Civil Rights Movement 2 begins.
 - Mon, January 20: Donald Trump is inaugurated to the U.S. presidency. 
 
