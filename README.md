@@ -9,6 +9,7 @@
 
 > [!IMPORTANT]
 > - Sat, May 17: Civil Rights Movement 2 begins.
+> - Fri, May 16: Day #1 of CRM2 News. [For sale at $6](https://www.etsy.com/listing/4306621595/writing-002)
 > - Mon, January 20: Donald Trump is inaugurated to the U.S. presidency. 
 
 ### 2024
