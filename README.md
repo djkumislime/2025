@@ -11,7 +11,7 @@
 > - Pluto: 12-24 yers / house w/ L-retrograde
 > 
 > - Sun: 30 days / house w/ no-Retrograde
-> - Moon: 2.5 days / house w/ no-Retrograde
+> - Moon: 2.5 days / house w/ no-Retrograde **Note:** Saturn x Moon > Feel isolated, insecure, "Do I deserve it?", self-esteem going down, health issues, etc.
 
 > [!TIP]
 > - People from England founded <ins>**the state of Georgia** _to work on their debts_</ins>.
